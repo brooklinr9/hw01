@@ -8,13 +8,13 @@ Name:Ruixi(Ray) Mao
   +  Academic Interest: Economic Sociology; 
   +  Current Research: Capitalism; Entrepreneurship  
   
-[here's my linkedin profile]()
+[here's my linkedin profile](https://www.linkedin.com/in/ruiximao/)
 
 ***Other Interests***  
 
 Travel: I recently went ot Tibet:
 
-![](IMG_1192.jpg)
+![](/IMG_1192.jpg)
 
 
 
